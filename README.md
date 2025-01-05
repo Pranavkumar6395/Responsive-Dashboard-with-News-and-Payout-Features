@@ -1,3 +1,3 @@
-Technical Assessment Frontend Developer - Sportsdunia NIT Patna
+ student at Graphic Era
 
-Name - Abhishek Kumar
+Name - Pranav Kumar
